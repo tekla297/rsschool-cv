@@ -1,1 +1,1 @@
-# rsschool-cv
+https://tekla297.github.io/rsschool-cv/
